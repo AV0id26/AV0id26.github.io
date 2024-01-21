@@ -1,3 +1,3 @@
 # KRYPTON
 # PROJECTS DISPLAYED
-![(https://rare-gallery.com/mocahbig/78021-Assetto-Corsa-Competizione-4k-Ultra-HD-Wallpaper.jpg)
+![Image of Books](https://m.timesofindia.com/photo/104701845/104701845.jpg)
